@@ -1,1 +1,1 @@
-001011 Yang Yu Jun
+20001231 Lee Seong Min
